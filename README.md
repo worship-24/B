@@ -1,2 +1,2 @@
 # B
-https://worship-24.github.io/B/
+https://worship-24.github.io/Blue/
